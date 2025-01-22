@@ -1,1 +1,1 @@
-![Terminal Style Presentation](https://github.com/user-attachments/assets/1b177c9d-46d5-4ad1-8e32-b22a97ae9492)
+![Terminal Style Presentation](https://github.com/user-attachments/assets/6d400494-c21c-44c3-98c3-75ed2d923e16)
